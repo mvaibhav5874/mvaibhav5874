@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mvaibhav5874
 - 👀 I’m interested in cloud
 - 🌱 I’m currently learning web devlopment
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on any new projects
 - 📫 mvaibhav5874@gmail.com
 - ⚡ Fun fact: Good Thing Takes Time
 
