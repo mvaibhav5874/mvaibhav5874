@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on any new projects
 - 📫 mvaibhav5874@gmail.com
 - ⚡ Fun fact: Good Thing Takes Time
+- [![linkedin](![image](https://github.com/user-attachments/assets/2aff6d2c-9906-4431-a3a3-d3155290ee3e)](https://www.linkedin.com/in/mathamsetty-vaibhav-088209253/)
 - ![linkedin](![image](https://github.com/user-attachments/assets/2aff6d2c-9906-4431-a3a3-d3155290ee3e)
 )
 - linkedin : https://www.linkedin.com/in/mathamsetty-vaibhav-088209253/
